@@ -1,1 +1,1 @@
-<img width="1503" height="1153" alt="boy (7)" src="https://github.com/user-attachments/assets/56ea6c2c-772c-4bb6-af3b-12440a5ec4c2" />
+<img width="877" height="681" alt="boy (8)" src="https://github.com/user-attachments/assets/94d070f8-9de9-44ba-91d7-3c50138bed7c" />
